@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ggrelaxi.github.io/rsschool-cv
