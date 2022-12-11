@@ -1,1 +1,1 @@
-https://ggrelaxi.github.io/rsschool-cv/cv
+https://ggrelaxi.github.io/rsschool-cv
